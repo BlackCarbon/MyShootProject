@@ -1,5 +1,5 @@
-# MyShootProject
+# AI基础
 演示视频：
-链接：https://pan.baidu.com/s/1azHaVjx4Zwufe09G_h4xOg 
-提取码：1111
+链接：https://pan.baidu.com/s/1RFT2zeGNLhG-fdGr5QEPuw 
+提取码：jybh
 
